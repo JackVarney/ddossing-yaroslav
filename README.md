@@ -26,7 +26,3 @@ Hmm, I wonder what this is.
 I felt mocked, maybe i should just join him. Maybe he was right, maybe page counters shouldnt be hilarious numbers?
 
 Then I noticed it. Another page counter. Only this time - there was no timer.
-
-#
-
-https://prnt.sc/k8kijw
