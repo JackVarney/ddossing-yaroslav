@@ -33,8 +33,6 @@ I felt mocked, maybe i should just join him. Maybe he was right, maybe page coun
 
 Then I noticed it. Another page counter. Only this time - there was no timer.
 
-NICE TIMER YAROSLAV OH WAIT.
-
 #
 
 https://prnt.sc/k8kijw
